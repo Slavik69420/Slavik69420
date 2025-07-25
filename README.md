@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Slavik69420
-- 👀 I’m interested in hackiing roblox
-- 🌱 I’m currently learning uhhhhhhhhhh idk
+- 👀 I’m interested in roblox exploits
+- 🌱 I’m currently ~~learning~~
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me u cant
 - 😄 Pronouns: KG/lbs
-- ⚡ Fun fact: i love russian food
+- ⚡ Fun fact: I eat
 
 <!---
 Slavik69420/Slavik69420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
